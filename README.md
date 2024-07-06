@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @CheickOumar15
 - 👀 I’m interested in all of informatique
-- 🌱 I’m currently learning iphone and android bypass
+- 🌱 I’m currently Cybersecurity, Web and Mobile Developpments
 - 💞️ I’m looking to collaborate on all conserned by informatique
 - 📫 you can contact me on wattsapp with +22372124360
 
